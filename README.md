@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Java, Web Devlopment and football**
 
-- 📫 You can reach me on **damodarnandafiitjee@gmail.com**
+- 📫 You can reach me on **avilasnanda1033@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
